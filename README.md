@@ -1,0 +1,1 @@
+# swot-analysis-website
